@@ -1,0 +1,1 @@
+# Jazmy-Izzati-Alamsyah_16521324_STI-G_DiarySPATA
